@@ -1,2 +1,2 @@
 # pls
-schooooool
+practice for classes thats all nothing interesting
